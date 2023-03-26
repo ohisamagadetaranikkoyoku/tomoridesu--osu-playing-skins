@@ -11,5 +11,6 @@ youtube: https://www.youtube.com/channel/UCkv2w1MhoPMDM47YGugKG1w
 
 # Azerite (osuplayer84) #2 - (https://drive.google.com/file/d/1HzoxHiUfTN8Y6p84EIzcwjZrzqJ4K1Nc/view)
 
+# azerino malisz - (https://drive.google.com/file/d/1vWFwULigzdvgXxFvTbzi96KY6eHIsYUs/view?usp=sharing)
 
-
+# sadnesswillsear skin - (https://drive.google.com/file/d/1IBCHXdccPeb0Oq7yn9Ety-wvAP-mC65G/view?usp=sharing)
